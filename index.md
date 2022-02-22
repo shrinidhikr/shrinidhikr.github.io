@@ -1,6 +1,6 @@
 ## Shrinidhi Kadadakatte Ramesh
 
-[LinkedIn](https://www.linkedin.com/in/shrinidhikr)   |   [Resume](https://shorturl.at/uJTW9)   |   [Email-ID](shrinidhi987@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/shrinidhikr)   |   [Resume](https://shorturl.at/uJTW9)   |   [Email-ID](https://mail.google.com/mail/?view=cm&fs=1&to=shrinidhi987@gmail.com)
 
 ### Education
 
