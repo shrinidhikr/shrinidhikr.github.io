@@ -1,6 +1,6 @@
 ## Shrinidhi Kadadakatte Ramesh
 
-[LinkedIn](https://www.linkedin.com/in/shrinidhikr) [Resume](https://github.com/shrinidhikr/shrinidhikr.github.io/blob/main/Resume.pdf) [Email-ID](shrinidhi987@gmail.com) [Contact No.](+91-9620220642)
+[LinkedIn](https://www.linkedin.com/in/shrinidhikr)   |   [Resume](https://shorturl.at/uJTW9)   |   [Email-ID](shrinidhi987@gmail.com)
 
 ### Education
 
